@@ -6,3 +6,4 @@ My Name is Josiah Dave Nunez I am a 3rd year BSIT Student from Central Philippin
 3. I support Local Artistst
 4. I sometimes an Impulsive buyer
 5. I have a Nintendo Switch
+.
